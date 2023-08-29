@@ -14,7 +14,7 @@
   </a>
   
 
-# Blue Lion Whatsapp Bot
+# Qｕｅｅｎ ｓａｄｕ Whatsapp Bot
 
 
 Blue Lion whatsapp bot is,
