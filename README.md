@@ -10,16 +10,16 @@
 
    <p align="center">
 <a href="https://github.com/nipuna15">
-    <img src="https://i.ibb.co/n0DTPxs/Whats-App-Image-2023-06-16-at-15-06-03.jpg" width="700px">
+    <img src="https://telegra.ph/file/f858431fdd88da8575a8a.jpg">
   </a>
   
 
 # Qｕｅｅｎ ｓａｄｕ Whatsapp Bot
 
 
-Blue Lion whatsapp bot is,
+Q̲U̲E̲E̲N̲ S̲A̲D̲U̲ whatsapp bot is,
 
-      Blue Lion whatsapp bot is an easy to use whatsapp robot.   |  Blue Lion whatsapp bot යනු ඔබට පහසුවෙන් බාවිතකර හැකි whatsapp robo වරයෙකි.
+      qᴜᴇᴇɴ ꜱᴀᴅᴜ whatsapp bot is an easy to use whatsapp robot.   |  qᴜᴇᴇɴ ꜱᴀᴅᴜ whatsapp bot යනු ඔබට පහසුවෙන් බාවිතකර හැකි whatsapp robo වරයෙකි.
 
 
   
